@@ -1,1 +1,1 @@
-aqui as pessoas leem o informações
+Aprender, e etceteras veyr
